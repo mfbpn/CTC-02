@@ -1,6 +1,6 @@
 # CTC-02机场官网地址
 
-最新地址：[ctc.run](https://8.217.100.36/#/register?code=UqMieGlb)
+最新地址：[ctc.run]https://8.217.100.36/#/register?code=Beb601Dm)
 
 ## CTC-02介绍
 
